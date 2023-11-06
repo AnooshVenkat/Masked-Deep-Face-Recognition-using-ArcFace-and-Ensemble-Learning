@@ -14,7 +14,7 @@ Contents:
 
 2. Code:
 
-    Please email me at rarunkumar15112k@gmail.com or arunkumarr18016@it.ssn.edu.in to view the following codes.   
+    Please email me at anoosh1531@gmail.com or anooshsolayappanv18013@it.ssn.edu.in to view the following codes.   
     
     2.1. Converting Videos to Frames
 
